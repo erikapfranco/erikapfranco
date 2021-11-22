@@ -3,7 +3,7 @@
 [![Linkedin Badge](https://img.shields.io/badge/-LinkedIn-0e76a8?style=flat-square&logo=Linkedin&logoColor=white)](https://linkedin.com/in/erikapfranco)
 [![Instagram Badge](https://img.shields.io/badge/-Instagram-e4405f?style=flat-square&logo=Instagram&logoColor=white)](https://instagram.com/erikapfranco)
 
-### Glad to see you here! &nbsp; ![](https://visitor-badge.glitch.me/badge?page_id=erikapfranco.erikapfranco)
+### I'm really glad to see you here! &nbsp; ![](https://visitor-badge.glitch.me/badge?page_id=erikapfranco.erikapfranco)
 
 I am a lawyer and I'm currently learninghow to code. I love learning new things, speaking, playing games and traveling.
 
